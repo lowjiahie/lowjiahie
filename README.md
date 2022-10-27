@@ -1,6 +1,8 @@
 Hi I am Low Jia Hie👋
 =
 
+👦 About Me
+_
 
 - 🌱 I’m currently learning ...
 - 🤔 I’m looking for help with ...
